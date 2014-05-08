@@ -8,14 +8,20 @@ Back 2 school
 
 back 2 school packet
 
-pe clothes
-	Another difference between Elementar
+pe clothes	
+
+Another difference between Elementary School and J.L.S. is that students are required to wear P.E. clothes during P.E. This attire is athletic/tennis shoes, socks, navy blue shorts and a navy blue short-sleeved shirt. Shorts and shirts with the JLS logo can be purchased on Jump Start day. An alternative is to bring your own shorts and shirt, as long as they are navy blue and they follow the J.L.S. dress code. If the weather is cold, you can wear long pants and/or a sweater on top of the P.E. clothes.
+
+P.E. Locker Rooms
+	
 panther camp
 
 6 th grade class structure
 
-school supplies
+Attending classes at J.L.S. will be much different than elementary school. For example, instead of having one teacher the whole day, you have five or more teachers. The five teachers you will have are the English/Language Arts and Social Studies teacher, Math and Science teacher, Wheel teacher, Physical Education teacher, and Music teacher. You will have a core teacher for Math and Science teamed with a core 
 
+school supplies
+(short description of school supplies , refer to school supplies page)
 binder reminder
 
 lunch activities
@@ -46,5 +52,3 @@ lockers and lock opening
 clubs
 portfolios
 admin ancounselorer help
-
-
